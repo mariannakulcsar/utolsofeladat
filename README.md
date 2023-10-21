@@ -1,1 +1,2 @@
 # utolsofeladat
+# @ - * / É $$
